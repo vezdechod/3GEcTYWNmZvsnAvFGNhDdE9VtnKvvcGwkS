@@ -1,0 +1,2 @@
+# 3GEcTYWNmZvsnAvFGNhDdE9VtnKvvcGwkS
+vezdechod 3GEcTYWNmZvsnAvFGNhDdE9VtnKvvcGwkS
